@@ -9,7 +9,7 @@
 ## 📫 İletişim
 - 📧 enesaksu5665@gmail.com  
 - 📞 +90 506 091 30 53  
-- 🌍 [GitHub](https://github.com/aksuuenes)  
+- 🌍 [Linkedin](https://www.linkedin.com/in/muhammedenesaksu/)  
 - 📍 Ümraniye, İstanbul  
 
 ---
